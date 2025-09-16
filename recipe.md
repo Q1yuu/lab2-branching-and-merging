@@ -17,3 +17,9 @@
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
+
+## Notes / Tips
+- Weigh flour for best results (240 g for 2 cups).
+- If batter looks too thick, add 1–2 tbsp milk.
+- Cool 15 minutes in pan, then cool completely on a rack.
+- **Storage:** room temp 2 days (covered) or refrigerate 5 days; freeze (unfrosted) up to 2 months.
